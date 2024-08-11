@@ -12,4 +12,4 @@
 编年史链接 https://highping64x.github.io/lj-bns (复制使用,直接点击无法进入)
 
 
-如有想法可[私信_highping_](https://space.bilibili.com/3461564780775686 "不是你瞅啥!")或者联系QQ3768407090
+如有想法可[私信_highping_](https://space.bilibili.com/3461564780775686 "不是你瞅啥!")或者[加入QQ频道](https://pd.qq.com/s/9fwof13e0 "不是你瞅啥!")
